@@ -15,3 +15,10 @@ Learning
 4.  Good Trade Loss de fir bhi improve it somewhat but always stick to your game. 
 5.  Marad ban mat ban to Dhokla- Masculine Energy 
 -------------------------------------------------------------------------------
+
+
+Aj ka mood/Tendency
+1. Got a Cold and could not sleep properly last night. ------ Bad
+2. AA mei Ansible ke lab kar ke POC banaya----- Good
+3. In a Regret, why I had not got that 1500 out. ---- Bad
+4. Runny nose se Dhyan bhatkane ke liye Market me 250 ghalwa ---- bade Log BC
